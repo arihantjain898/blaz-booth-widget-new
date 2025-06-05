@@ -1,0 +1,1 @@
+# blaz-booth-widget-new
